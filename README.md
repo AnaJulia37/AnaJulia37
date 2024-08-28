@@ -12,11 +12,12 @@ meu hobbie é cozinhar 🧑‍🍳
 
 ![](https://media.tenor.com/oiiF1L5rIdYAAAAM/chefcat-cat-chef.gif)
 
-minhas series favoritas são: friends, grey´s anatomy e gossip girl.
+minhas series favoritas são: friends, grey´s anatomy e gossip girl e Modern family
 💜 💙 💛
 
 entre contato comigo em: ana.salvatori@escola.pr.gov.br
 
 ![](https://media.tenor.com/QCLFP3CFL3MAAAAM/leatylrs-friends.gif)                           ![](https://media.tenor.com/PtRzth_dYvEAAAAM/goodmorning-love.gif)
 ![](https://media.tenor.com/pwQvOuDR5egAAAAM/gossip-girl.gif) 
-![](https://media.tenor.com/9OXWhPukACIAAAAM/friends-friendstv.gif)
+![](https://media.tenor.com/9OXWhPukACIAAAAM/friends-friendstv.gif)                         ![](https://media.tenor.com/23a9IP1TQF8AAAAM/ty-burrell-dad-jokes.gif)
+![](https://media.tenor.com/RGCGtIOFMjsAAAAM/modern-family.gif)
